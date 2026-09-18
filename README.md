@@ -11,5 +11,6 @@ What am i good at :
           Not pretending ,
           Orating,
           Thinking Clearly,
-          Convincing , and
-          Managing people
+          Convincing,
+          Managing people & at
+          Art of story telling
