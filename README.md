@@ -13,5 +13,5 @@ What am i good at :
           Orating,
           Thinking Clearly,
           Convincing,
-          Managing people & at
+          Managing people & 
           Art of story telling
